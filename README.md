@@ -1,4 +1,4 @@
-# 🌾 Khajuria Rice & General Mill - R.S. Pura, Jammu
+#  Khajuria Rice & General Mill - R.S. Pura, Jammu
 
 ### 📍 Premium 1121 Basmati Rice | Direct From Mill 
 
